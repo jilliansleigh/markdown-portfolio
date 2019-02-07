@@ -1,1 +1,4 @@
 Beans are really cool so I say cool beans a lot. Yee
+video games r really cool beans
+list 
+list
